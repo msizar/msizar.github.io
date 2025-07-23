@@ -1,2 +1,0 @@
-# msizar.github.io
-stardust
